@@ -19,15 +19,17 @@ Here are some ideas to get you started:
 
 <p align="center"> <b>ships DNIuf</b>
  
-<p align="center"> cudcomf (c+h encouraged)
-<p align="center"> <b>w2i</b>, dnc. you may take light inspo
-<p align="center"> i may hide you; i block freely
+<p align="center"> cudcomf (c+h encouraged); still socially awkward though, so i'll probably be quiet/not do much if you do
+<p align="center"> <b>w2i</b> at all times, dnc. you may take light inspo from my designs
+<p align="center"> i may hide you; i block freely. this could be for literally any reason. don't take it super personal
 <br><br><br></br>
 
  
 <p align="center"> https://basic-dni.crd.co/
-<p align="center"> <b>i don't accept random friend reqs</b>
-<p align="center"> ponytown account (obviously)
+<p align="center"> <b>i don't accept random friend reqs!</b> expect that if you send one without speaking to me beforehand or knowing me, it'll get insta-declined
+<p align="center"> i'm extremely multifandom, expect me to have ponies for a multitude & not stick to one all the time.
+ 
+<p align="center"> this is a ponytown account (obviously)
 <br><br>
 
 <br></br>
