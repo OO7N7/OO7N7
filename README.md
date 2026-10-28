@@ -7,7 +7,7 @@
 <br><br>
 
 <!-- pagedoll -->
-<img width="380" src="https://i.postimg.cc/G2vK9cR8/dollanim.png" alt="pagedoll">
+<img width="460" src="https://i.postimg.cc/G2vK9cR8/dollanim.png" alt="pagedoll">
 
 <br>
 
